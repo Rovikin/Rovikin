@@ -1,4 +1,4 @@
-# Hi, I'm Xorchi ! 👋
+# Hi, I'm Rovikin ! 👋
 
 Welcome to my profile! I’m an advocate for the freedom that comes with being jobless and exploring life without the constraints of a traditional 9-to-5 job.
 
